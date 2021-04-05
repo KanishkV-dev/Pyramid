@@ -1,0 +1,9 @@
+<!DOCTYPE html>
+<html>
+<head>
+
+<h1 class="wc">What is Pyramid Scheme and Why Are They Bad</h1>
+<p class="wc">
+<center><img style="-webkit-user-select: none;margin: auto;" src="https://perfectionhangover.com/wp-content/uploads/Network-Marketing-MLM-Pyramid-Scheme-How-it-Works.png"><center>
+<div class="lna">
+<h4/><p>Pyramid schemes is a business that recruits people with a hope that they'll bring in money and recruit more people. In some countries, doing this business is illegal. Being part of it is bad as also it's a waste of money and isn't profitable. People make money or get commission when other people pay into the scheme rather than selling the product. And usually the only people that profit are the people that made it in the first place. People in the upper layers of the pyramid typically profit, while those in the lower layers typically lose money. A pyramid scheme is characterized by a few people making large amounts of money, while following members lower the pyramid lose money. For this reason, they are considered scams. For a pyramid scheme to make money for everyone who enrolls in it, it would have to expand indefinitely and as there's only 7 billion people, that's impossible. Without creating any goods or services, the only revenue streams for the scheme are recruiting more members or soliciting more money from current members. Your income is based mainly on the number of people you recruit, and the money those new recruits pay to join the company, and not the sales from products. Our product are coconut shells. In this situation, our product is a pramid scheme and here are some of the reasons. We pay our recruits if they can invite more people into our business. And it's hard for you to get in profit.<p><h4/>
